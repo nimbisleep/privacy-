@@ -1,0 +1,28 @@
+Privacy Policy for Nimbi
+
+Effective Date: [Today’s Date]
+
+Nimbi respects your privacy. This app does not collect, store, or share any personal information from users.
+
+Information We Collect
+
+We do not collect personal data, location, or any other user information.
+
+The app runs entirely on your device.
+
+Third-Party Services
+
+Nimbi does not use ads, analytics, or third-party tracking tools.
+
+Children’s Privacy
+
+Nimbi is safe for all ages. We do not knowingly collect information from children.
+
+Changes to This Policy
+
+If this Privacy Policy changes, we will update it here.
+
+Contact Us
+
+If you have any questions, you can contact us at:
+saalahsega01@gmail.com
