@@ -1,6 +1,6 @@
 Privacy Policy for Nimbi
 
-Effective Date: [Today’s Date]
+Effective Date: 13/09/2025
 
 Nimbi respects your privacy. This app does not collect, store, or share any personal information from users.
 
